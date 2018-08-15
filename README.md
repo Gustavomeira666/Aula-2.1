@@ -1,5 +1,6 @@
 # Aula-2.1
 
 # MR. Bean - Por quê o eu acha ele HILÁRIO. k
-# Robert Downey JR. - PQ ELE É O IRON MAN
+# Tobey Maguire - SPIDER MAE
 # Johnny Depp - PQ ELE TEM MÂOS DE TESOURA
+# Scarlett Johansson - VIUVA GATA
